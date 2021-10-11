@@ -1,6 +1,10 @@
 ### Hi there 👋
 
-https://github.com/hkush8289/hkush8289/blob/main/GIF.gif
+
+https://user-images.githubusercontent.com/47265769/136785091-edbca359-acfa-4e4b-8b4c-25cb79c0cc14.mp4
+
+
+
 <!--
 **hkush8289/hkush8289** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
