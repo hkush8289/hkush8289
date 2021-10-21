@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-https://user-images.githubusercontent.com/47265769/136785091-edbca359-acfa-4e4b-8b4c-25cb79c0cc14.mp4
+
 
 
 
